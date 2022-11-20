@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Nrect
+👋 Hi, I’m @Nrect
